@@ -9,7 +9,7 @@ Te invito a conocer mis aprendizajes y leer mis experiencias.
 
 Mis espectativas para este proyecto son: 
 
--Aprender a organizarme para no descuidar ninguna responsabuilidad 
+-Aprender a organizarme para no descuidar ninguna responsabilidad 
 
 -Conocer nuevos metodos y tecnologias para mejorar como desarrollador backend 
 
