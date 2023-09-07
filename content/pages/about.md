@@ -19,6 +19,6 @@ Hola, aquí vas a leer un poco sobre mi 🤩
 
 >Agradezco mucho a Jehová Dios que apesar de las luchas que la vida nos ah puesto hemos salido adelante y cada vez nos volvemos mas fuertes,trato de siempre ayudar a quienes necesitan ayuda y siempre que me sea posible.
 
->Tambein aprovecho los isntantes que puedo pasar con mi familia y en especial con mi madre ya que lamentablemente: *"nadie es eterno...."*
+>Tambien aprovecho los instantes que puedo pasar con mi familia y en especial con mi madre ya que lamentablemente: *"nadie es eterno...."*
 
 
